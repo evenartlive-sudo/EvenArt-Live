@@ -1,2 +1,0 @@
-# EvenArt-Live
-Association
